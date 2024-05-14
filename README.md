@@ -1,1 +1,1 @@
-# Tudo-sobre-Intelig-ncia-Artificial-2024
+# Tudo-sobre-Inteligência-Artificial-2024
